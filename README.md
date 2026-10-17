@@ -1,4 +1,7 @@
-##                            <i>I’ll make this page later.<i>
+##        .                    <i>I’ll make this page later.<i>
+
+
+I’m sorry if I don’t reply to you in private messages, given that my description says W2I. I often go off‑topic, even when it’s not indicated in my username!!! Either duplicate your message, or just know that I’ve read it, but I can’t reply.
 
 <!--
 **BaddSchi/BaddSchi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
