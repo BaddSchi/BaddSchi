@@ -14,7 +14,7 @@
 
 <img src="https://i.imgur.com/CsLSTdR.png" width="200" align="left" />
 <p align="center">
-𝖧𝖤 / 𝖧𝖨𝖬 𝖮𝖭𝖫𝖸  ݁݁  ﹕  𝟣𝟩.𝟣𝟣 〢 𝟣4 𝖽𝖺𝗒𝗌 𝗅𝖾𝖿𝗍 !! 
+𝖧𝖤 / 𝖧𝖨𝖬 𝖮𝖭𝖫𝖸  ݁݁  ﹕  𝟣𝟩.𝟣𝟣 〢 𝟣3 𝖽𝖺𝗒𝗌 𝗅𝖾𝖿𝗍 !! 
   <p align="center">  
     𝓗𝗈𝖻𝖻𝗂𝖾𝗌..? ╭╯ 𝗌𝗂𝗇𝗀𝗂𝗇𝗀, 𝖽𝗋𝖺𝗐𝗂𝗇𝗀, 𝖽𝖺𝗇𝖼𝗂𝗇𝗀, 𝖽𝖾𝗌𝗂𝗀𝗇𝖾𝗋 
 <p align="center">
